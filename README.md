@@ -7,7 +7,7 @@
 ## 🙋‍♂️ About Me
 
 - 📫 How to reach me **doandradejr@gmail.com**
-
+- 📚 **Always learning a lot!**
 - ⚡ Fun fact **I play games and love read mangá and watch anime.**
 
 ## 🚀 Languages and Tools:
