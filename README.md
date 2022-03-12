@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **doandradejr@gmail.com**
 - 📚 **Always learning a lot!**
-- 🟣 **Bachelor of Information Systems**
+- 🟣 **Studying Information Systems at CEFET**
 - ⚡ **I play games and love read mangá and watch anime.**
 
 ## 🚀 Languages and Tools:
