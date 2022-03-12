@@ -4,7 +4,7 @@
 <h3 align="center">I'm a Developer from Brazil.</h3>
 
 
-## 🙋‍♂️ About Me
+## 🥷 About Me
 
 - 📫 How to reach me **doandradejr@gmail.com**
 - 📚 **Always learning a lot!**
