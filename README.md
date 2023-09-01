@@ -9,7 +9,7 @@
 - 📫 How to reach me **doandradejr@gmail.com**
 - 📚 **Always learning a lot!**
 - 🟣 **Studying Information Systems at CEFET**
-- ⚡ **I play games and love read and watch anime.**
+- ⚡ **I play games, love listen music and read some books.**
 
 ## 🚀 Languages and Tools:
 
